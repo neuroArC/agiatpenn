@@ -1,2 +1,2 @@
-# agiatpenn
+# AGI at PENN
 Weekly reading group  
