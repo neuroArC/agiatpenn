@@ -1,2 +1,2 @@
 # agiatpenn
-Weekly reading group
+Weekly reading group  
